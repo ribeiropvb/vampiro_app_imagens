@@ -1,0 +1,1 @@
+# vampiro_app_imagens
